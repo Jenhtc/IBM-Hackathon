@@ -15,3 +15,7 @@ https://www.google.be/search?q=product+vision+template&client=safari&hl=fr-be&sx
 https://www.nngroup.com/articles/empathy-mapping/
 <br><br>
 https://www.romanpichler.com/tools/product-vision-board/
+<br><br>
+https://fr.freepik.com/
+<br>
+https://www.sketch.com/
